@@ -1,3 +1,3 @@
 # tarun-bisht
 
-[https://github.com/hightarun](TARUN BISHT)
+[TARUN BISHT](https://github.com/hightarun)
